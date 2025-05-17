@@ -1,4 +1,4 @@
-# 👩‍💻 Jorge Andres — Desarrolladora Fullstack
+# 👩‍💻 Jorge Andres — Desarrollador Fullstack
 
 🌐 GitHub: [@Jorg411](https://github.com/Jorg411)  
 📍 Ubicación: 🌎  
